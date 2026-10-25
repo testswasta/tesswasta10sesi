@@ -1,0 +1,1 @@
+# tesswasta10sesi
